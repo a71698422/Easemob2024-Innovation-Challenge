@@ -36,7 +36,7 @@
 
 
 ## 评选规则
-![在这里插入图片描述](https://i-blog.csdnimg.cn/direct/e85b2c6db8eb41eba1da980017918952.png)
+![在这里插入图片描述](https://i-blog.csdnimg.cn/direct/32b108df5dd44730b62391439c757a0b.png#pic_center)
 
 
 
